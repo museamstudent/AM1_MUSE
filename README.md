@@ -1,1 +1,1 @@
-# AM1_MUSE
+# MUSE student 
